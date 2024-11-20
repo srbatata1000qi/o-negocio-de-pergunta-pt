@@ -1,1 +1,0 @@
-# o-negocio-de-pergunta-pt
